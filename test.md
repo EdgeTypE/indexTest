@@ -14,3 +14,8 @@ tags:
   - '2024'
   - 'haber'
 
+
+Minecraft'ın resmi sitesi, Minecraft Live'da duyurulacak yeni güncellemeyi sızdırdı.
+
+Oyuna Pale Garden adında yeni bir biyom ve Creaking adında yeni bir canlı eklenecek.
+https://goygoyengine.com/haber/yeni-minecraft-guncellemesini-minecraft-in-kendisi-sizdirdi
