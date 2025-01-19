@@ -1,3 +1,10 @@
+
+https://goygoyengine.com/haber/crysis-4-ten-kotu-haber/
+
+Crysis 4 https://news.gaming-db.com/news/bad-news-from-crysis-4/
+
+
+
 # indexTest
 
 https://goygoyengine.com/haber/2025-yilinda-cikacak-tum-oyunlar/
