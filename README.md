@@ -1,4 +1,10 @@
 
+https://goygoyengine.com/araclar/indirme-suresi-hesaplayici/
+
+indirme hızı hesaplama
+
+
+
 https://goygoyengine.com/haber/crysis-4-ten-kotu-haber/
 
 Crysis 4 https://news.gaming-db.com/news/bad-news-from-crysis-4/
